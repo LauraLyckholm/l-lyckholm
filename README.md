@@ -1,4 +1,4 @@
-👋 Hi there, I’m @l-lyckholm, or in human words: Laura!
+👋 Hi there, I’m @LauraLyckholm, or in human words: Laura!
 I'm here to learn, get inspired, and hopefully also share my projects with the world.  
 
 👀 I love being creative, in what way doesn't really matter! In my day-to-day work I get to be creative on the web, by designing and creating different types of content on an e-commerce website. 
